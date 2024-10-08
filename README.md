@@ -4,7 +4,7 @@
 
 Enhancing knowledge in the Information and Cyber-security space
 
-  **Pursuing >> CompTIA & CC-ISC2**
+  **Pursuing >> CompTIA Security+ & CC-ISC2**
   
 - 📫 Reach me at- https://www.linkedin.com/in/sahil-kumar-mystogan/
 - 😄 Pronouns: He/Him
